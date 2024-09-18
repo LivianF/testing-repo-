@@ -1,4 +1,4 @@
 # meu nome é Livian 
-gosto de gatos 
+gosto de gatos, filmes e música  
 
 
